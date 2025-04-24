@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @barani
-- 👀 I’m interested in unmaiya solla mudiyadhu
+- 👀 I’m interested in - unmaiya solla mudiyadhu
 - 🌱 I’m currently learning - adha dhaan figure out pantrukkan
 - 💞️ I’m looking to collaborate on - emoji ku etha maari badhil eludha mudiyadhu
 - 📫 How to reach me - mail maadi
